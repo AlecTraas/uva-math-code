@@ -13,7 +13,7 @@ applications are judged on a holistic basis. You may opt to receive up to one co
 
 [Mentee Application](https://docs.google.com/forms/d/e/1FAIpQLSdHKbX6BzhnxgGFBqmfY5VJY-fwDtknGdiV7yYQ8NlfON5xWQ/viewform?usp=sf_link)
 
-**Applications Due: Friday, September 3rd, 2021 11:59 PM Eastern Time**
+**Applications Due: Thursday, September 2nd, 2021 11:59 PM Eastern Time**
 
 <h2 class="mb-3">Mentor Application</h2>
 
